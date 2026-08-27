@@ -1,0 +1,1 @@
+![](CoconinoCounty-specimen.png)
